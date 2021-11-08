@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @catsssl0vver
+- 👀 I’m interested in animation
+- 🌱 I’m currently learning python coding
+- 💞️ I’m looking to collaborate on idk wut do u mean
+- 📫 How to reach me email, github duh, outlook, yahoo.................
