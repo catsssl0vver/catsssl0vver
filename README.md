@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @catsssl0vver
-- 👀 I’m interested in informatonal technology
-- 🌱 I’m currently learning python coding
+- 👀 I’m interested in coding
+- 🌱 I’m currently learning Python
 - she/her
-- one homesick alien <33
+- Lana fan <3
