@@ -1,5 +1,4 @@
-- 👋 Hi, I’m @catsssl0vver
-- 👀 I’m interested in coding
-- 🌱 I’m currently learning Python
-- she/her
+
+-  I’m interested in coding
+-  I’m currently learning Python
 - Lana fan <3
